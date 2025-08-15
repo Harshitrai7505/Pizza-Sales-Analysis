@@ -57,6 +57,9 @@ Contribution of different pizza categories to total revenue
 <img width="824" height="471" alt="Screenshot 2025-08-15 171850" src="https://github.com/user-attachments/assets/6244f667-b714-4ed5-8e80-4cc4abef639d" />
 
 
+**THANK YOU**
+
+
 
 
 
